@@ -1,2 +1,2 @@
-# girlfriend-day
-A 3D gift for girlfriend day
+# Happy birthday
+A gift for my friend's birthday : Anouchka
